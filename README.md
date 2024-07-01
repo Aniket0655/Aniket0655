@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aniket0655
-- 👀 I’m interested in ...NEW ABOUT COMPUTER SOFTWARE 
+- 👀 I’m interested in .... Nothing else 😐
 - 🌱 I’m currently learning ... GIT HUB 
 -
 - 📫 How to reach me ... I AM 
